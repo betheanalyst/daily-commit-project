@@ -1,1 +1,1 @@
-# daily-commit-project
+# daily-commit-project - Initial project setup
