@@ -1,0 +1,1 @@
+“The more you know who you are, and what you want, the less you let things upset you.” 
